@@ -11,7 +11,11 @@ https://github.com/HiteshRam666/Realtime-AI-Bicep-curl-Counter/assets/116026459/
 # Realtime: 
 
 
-https://github.com/HiteshRam666/Realtime-AI-Bicep-curl-Counter/assets/116026459/9e61665b-e426-4fbc-820e-749283942e36
+
+https://github.com/HiteshRam666/Realtime-AI-Bicep-curl-Counter/assets/116026459/5acfe6e3-6943-4999-9ed0-35ad2d645f0b
+
+
+
 
 
 
